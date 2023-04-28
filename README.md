@@ -1,4 +1,4 @@
-### Olá 👋 Me chamo Yuri Soarese e esse é meu GitHub!
+### Olá 👋 Me chamo Yuri Soares e esse é meu GitHub!
 
 
 - 🔎 Estou a procura de oportunidades 
